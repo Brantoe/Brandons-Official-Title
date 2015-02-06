@@ -1,1 +1,1 @@
-Senior Chief Executive of Sales Operations and Engineering, entrepreneur, go getter, engager, evangelist, humorist, life coach, mentor, visionary
+Senior Chief Executive of Sales Operations and Engineering, entrepreneur, go getter, engager, evangelist, duke, humorist, life coach, mentor, visionary
