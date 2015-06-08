@@ -1,1 +1,5 @@
 Senior Chief Executive of Sales Operations and Engineering, entrepreneur, chief negotiator, go getter, engager, evangelist, duke, humorist, life coach, mentor, visionary, Master Chief, duck aligner, and all around great guy
+
+
+
+(>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov) (>o.o)> (^o.o^) <(o.o<) (vo.ov)
